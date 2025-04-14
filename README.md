@@ -50,7 +50,7 @@ of CARRIER
 ![image](https://github.com/user-attachments/assets/ad1f3af7-3ba8-4e10-835b-babf9328ad3f)
 
 ## TABLE
-![image](https://github.com/user-attachments/assets/fdc4778f-2153-489e-a93f-07a14be9b9e3)
+![image](https://github.com/user-attachments/assets/6a35b78e-e0c2-49d9-81df-9e3676ecf3d1)
 
 ## OUTPUT GRAPHS
 ![WhatsApp Image 2025-04-09 at 10 55 19_2ef03b61](https://github.com/user-attachments/assets/c5fd9c7b-c8d5-4b97-9baa-b79769c6df39)
